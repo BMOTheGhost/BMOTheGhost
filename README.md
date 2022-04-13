@@ -1,0 +1,1 @@
+<img src="https://i.pinimg.com/originals/37/37/c7/3737c76f131307fe7c70edd6ef7de359.png" alt="HD Red Among Us Character With Surgical Mask PNG | Character, Png, Red"/>![image](https://user-images.githubusercontent.com/94129370/163226438-acf07245-8159-4eaf-a261-7d7345d36dc1.png)
